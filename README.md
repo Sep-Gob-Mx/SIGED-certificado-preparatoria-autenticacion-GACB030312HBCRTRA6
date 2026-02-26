@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GACB030312HBCRTRA6
+GACB030312HBCRTRA6
